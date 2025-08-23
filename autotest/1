@@ -1,0 +1,1 @@
+curl --location 'https://demo.db.vtb.ru/ui-api-web/smb/smib_smlz/v1/accounts'
