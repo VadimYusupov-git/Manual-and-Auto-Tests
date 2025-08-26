@@ -1,3 +1,1 @@
-
-
-![photo_2025-08-26_21-48-58](https://github.com/user-attachments/assets/5e64ddc5-aade-42f3-b995-91b75e2b07a1)
+![photo_2025-08-26_21-50-44](https://github.com/user-attachments/assets/a2261756-40f6-48b0-9c71-0743e6053939)
