@@ -1,1 +1,3 @@
-https://archam1337.kaiten.ru/space/647696/boards?focus=column&focusId=5104066
+
+
+![photo_2025-08-26_21-48-58](https://github.com/user-attachments/assets/5e64ddc5-aade-42f3-b995-91b75e2b07a1)
